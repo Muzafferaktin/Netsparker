@@ -1,3 +1,3 @@
-# BVilgi vs SSDF.sdkfsjlkdsjöhbdsöbdsdscmssjdjdsfjdsaj
+# Bilgi Sistemleri Ve Güvenliği
 
 Ben muzaffer
